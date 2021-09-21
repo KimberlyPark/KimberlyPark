@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KimberlyPark
-- 👀 I’m interested in swimmin, beading, and cooking!
+- 👀 I’m interested in swimming, beading, fishing, and cooking!
 - 🌱 I’m currently learning full-stack web development.
 - 💞️ I’m looking to collaborate on anything and everything!
 - 📫 How to reach me: quorrbbeeflash@yahoo.com
